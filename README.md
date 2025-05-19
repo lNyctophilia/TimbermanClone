@@ -2,7 +2,7 @@
 
 📸 Screenshots  
 
-![Screenshots](https://github.com/user-attachments/assets/1a369f26-2cd7-4fec-bb46-4e2c21b810ae)
+![Screenshots](https://github.com/user-attachments/assets/6c126f17-3f42-49b1-a61e-3f2bff238ce2)
 
 ---  
 
